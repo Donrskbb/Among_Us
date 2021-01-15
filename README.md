@@ -10,4 +10,4 @@ __**DOWNLOADS**__
 ------------------------------------------------------------------------------------------
 __**HELP**__
 
-**INSTALL SHERIFF:** https://www.youtube.com/watch?v=8_lF9AHyULw&ab_channel=SloppyGaming
+**INSTALL SHERRIF:** https://www.youtube.com/watch?v=8_lF9AHyULw&ab_channel=SloppyGaming
